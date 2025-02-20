@@ -5,3 +5,10 @@ My name is Noppadol Malungpaishrope. I do have a nickname that I go by which is 
 
 ## What Were Some Major Differences between the United States and Thailand?
 **There are many differences that I've experienced since moving here from Thailand. Some good, some bad, most are subjective and somewhere in between. I've had my fair share of cold weather before, but that was only in smaller circumstances when we went on trips abroad to colder countries. However, since moving to Iowa, I've had to learn to live in cold temperatures as the norm for months on end. The food here is also quite different. It is more of a personal preference thing, but I would be lying if I said I didn't miss the food that my mom would make back home in Thailand**
+
+### What Are Your Future Goals?
+There are many things I want to achieve in life, but it all starts here in college first. I've compiled a list that I believe would suffice to answer this question
+  - Graduate on a Dean's List
+  - Secure a solid starting job in the United States to hopefully gain some experience
+  - Finish up work in the United States and head back home to Thailand
+  - Work for the larger corporations in Thailand and hopefully secure financial security 
